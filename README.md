@@ -12,4 +12,6 @@ In other aspects of my life I like sports, specifically basketball and american 
 big part of me and my way of comprehending the world. I never watched anime and my favourite show is Naruto.
 
 Yeah that pretty much sums it up if you feel like contacting me and teaching me a thing or two or are just looking for recruits for a project you can reach me
-via groselj17@gmail.comor on instagram @luka.groselj17... I don't use Twitter.
+via groselj17@gmail.com or on instagram @luka.groselj17... I don't use Twitter.
+
+signed: _Luka Grošelj_
